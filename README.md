@@ -1,0 +1,1 @@
+# Ste-Y-netici-getr-gider-takip-otomasyonu2
